@@ -1,1 +1,0 @@
-# GRC275midterm
